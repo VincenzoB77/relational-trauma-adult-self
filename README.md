@@ -1,7 +1,9 @@
 Relational Trauma and the Construction of the Adult Self
 
 Dr. Vincenzo Bumbalo, MD
+
 Analytical Psychotherapist
+
 Jungian-Oriented Psychoanalyst
 
 Clifton Park, New York State, USA
